@@ -1,7 +1,5 @@
 # **LUVOA Privacy Policy**
 
-# Privacy Policy
-
 **Last Updated: June 28, 2026**
 
 **1. Introduction**
